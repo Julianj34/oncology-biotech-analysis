@@ -1,4 +1,4 @@
-Company Profile: Systemic Structure of the Merck Group.
+Systemic Structure of the Merck Group.
 
 Merck is deeply specialized and systemically organized.
 The clear separation into three specialized business sectors – Healthcare, Life Science, and Electronics – enables high-level expertise, targeted market access, and economies of scale across distinct industries.
